@@ -1,6 +1,6 @@
 # 💫 Hi 👋, I'm shivang singh choudhary
 **A passionate AIML/GEN AI Engineer  
-working as an AI inter at botKraft software
+working as an AI intern at botKraft software
 
 Email Me 👉 ✉️choudharyshivang09@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
